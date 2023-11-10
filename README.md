@@ -5,4 +5,4 @@
 - 📫 How to reach me casa do caraio
 !
 
-![](https://cdn.akamai.steamstatic.com/steamcommunity/public/images/items/579720/744ddd6f5a171923ce1f55a0de413046210593df.gif)
+![](https://giphy.com/gifs/anime-girl-loli-shigure-CYyzXsZ8ZfCoOSXnbV)
