@@ -5,4 +5,4 @@
 - 📫 How to reach me casa do caraio
 !
 
-![](https://giphy.com/gifs/anime-girl-loli-shigure-CYyzXsZ8ZfCoOSXnbV)
+![](https://giphy.com/gifs/anime-girl-loli-shigure-CYyzXsZ8ZfCoOSXnbV).
