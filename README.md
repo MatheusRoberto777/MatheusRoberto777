@@ -5,4 +5,6 @@
 - 📫 How to reach me 1A n 31
 
 ![](https://media.tenor.com/B4aybTd2IxMAAAAM/shigure-ui-dance.gif)
-![](https://cdn.akamai.steamstatic.com/steamcommunity/public/images/items/1442870/5c6d12fe965d46def2989e9fb74fc0b100765258.gif[)
+![](https://media.tenor.com/BBO_U-ttqtcAAAAC/shigure-ui-dance.gif)
+![](https://media.tenor.com/mBQzrYHIqS4AAAAC/shigure-ui-dance.gif)
+![](https://media.tenor.com/JMJHzfB_960AAAAC/shigure-ui-dance.gif)
